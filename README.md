@@ -10,7 +10,7 @@ Meu nome é Nitielle Priscila da Silva
 
 ### Você pode entrar em contato comigo :
 
-@
+@00001113560691sp@al.educacao.sp.gov.br
 
 
 ![descrição do GIF](https://media.tenor.com/WhyufqTMhy4AAAAM/video-game-bee-and-puppycat.gif)
